@@ -1,1 +1,0 @@
-# minkone007.github.io
